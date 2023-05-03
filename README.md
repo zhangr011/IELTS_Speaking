@@ -6,6 +6,6 @@ My brother got me into it because he loves sports.
 At first, I found it frustrating and boring.
 But now, I enjoy it.
 
-Jogging has helped me to improve my physical fitness and endurance. 
+As an aerobic exercise, jogging has helped me to improve my physical fitness and endurance. 
 I feel more energetic and refreshed after a good jog. 
 It's a great way to relieve stress and clear my mind, especially when I jog in nature.
