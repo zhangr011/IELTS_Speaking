@@ -1,4 +1,7 @@
 # IELTS_Speaking
+# home/family/neighbourhood
+I live in an apartment on the 9th floor of a tower block. 
+My house has two cosy bedrooms, a kitchen with a dining table, and a spacious living room with big windows.
 # hobbies/routines/sports
 I am quite a big fan of jogging during spare time. 
 I usually jog at the park near my home, sometimes alone and sometimes with my friends. 
