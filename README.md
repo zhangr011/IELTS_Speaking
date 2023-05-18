@@ -46,3 +46,7 @@ But now, I enjoy it.
 As an aerobic exercise, jogging has helped me to improve my physical fitness and endurance.
 I feel more energetic and refreshed after a good jog.
 I believe that It's a great way to relieve stress and clear my mind, especially when I jog in nature.
+
+# Others
+** They have a rapport, which means they are able to understand each other's ideas and feelings very well.
+
