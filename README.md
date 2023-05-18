@@ -48,5 +48,8 @@ I feel more energetic and refreshed after a good jog.
 I believe that It's a great way to relieve stress and clear my mind, especially when I jog in nature.
 
 # Others
-** They have a rapport, which means they are able to understand each other's ideas and feelings very well.
+* They have a rapport, which means they are able to understand each other's ideas and feelings very well.
+* My father is a half-glass-full kind of person, which means he is always optimistic about what is happening.
+* My mother is a half-glass-empty kind of person, which means she is always pessimistic about what is happening.
+* I am a quite big fan of coffee because of its rich flavour and aroma, and I find it is a great way to start my day. I have to admit that coffee is my mantra.
 
