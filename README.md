@@ -52,4 +52,5 @@ I believe that It's a great way to relieve stress and clear my mind, especially 
 * My father is a half-glass-full kind of person, which means he is always optimistic about what is happening.
 * My mother is a half-glass-empty kind of person, which means she is always pessimistic about what is happening.
 * I am a quite big fan of coffee because of its rich flavour and aroma, and I find it is a great way to start my day. I have to admit that coffee is my mantra.
-
+* Study abroad is a powerful vehicle for people-to-people exchange.
+* It's a little bit of a nuance, very subtle differences.
