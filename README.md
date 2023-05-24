@@ -2,15 +2,14 @@
 # PartII structure
 So I suppose I should commence with the first aspect which is ... ,<br>
 and I have to go for ... ,<br>
-for the reason that ... .<br>
 
 Now with regard to the next question of ... ,<br>
 and the thing that needs to be emphasized here is that ... ,<br>
 
-Moving forward onto the business of ... ,<br>
+Moving forward to the topic of ... ,<br>
 You really have to understand that ...<br>
 
-To end with, if I still have time, I could take care of the final question of ...<br>
+In the end, if I still have time, I could take care of the final question of ...<br>
 
 # PartI
 ## hometown
