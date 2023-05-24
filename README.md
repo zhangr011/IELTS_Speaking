@@ -14,13 +14,12 @@ To end with, if I still have time, I could take care of the final question of ..
 
 # PartI
 ## hometown
-landmarks
-famous for
 a sense of community
 
 stressful, cost of living is very high. make ends meet.
 
-I live in Guangzhou. It's a bustling megacity in southern China, and it's a beautiful place to live.
+I live in Guangzhou. It's a bustling megacity in southern China, which is famous for its landmarks such as the Canton Tower, Sacred Heart Cathedral and the Pearl River. It's also wellkown for its delicious Cantonese cuisine, of course.
+
 I've lived here for about 10 years.
 
 Traffic could be an issue in the city centre, but public transport such as subways, buses and shared bikes is very good here.
